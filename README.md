@@ -45,4 +45,12 @@
 
 <p>Si vous souhaitez obtenir <strong>des pièces gratuites</strong>, <strong>de la poussière d'étoile infinie</strong>, <strong>des tickets de raid gratuits en quantité illimitée</strong> et bien plus encore, ne perdez pas de temps. Téléchargez dès maintenant nos astuces pour Pokémon GO et commencez à dominer chaque combat, à faire éclore des œufs sans marcher et à capturer des Pokémon rares comme jamais auparavant. Qu'attendez-vous ? Le pouvoir est à portée de clic !</p>
 
-## [TÉLÉCHARGEZ LES ASTUCES POKÉMON GO](https://bit.ly/3GWdz1x)
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/pasco24afr">
+🫵🫵 CLIQUEZ ICI POUR TÉLÉCHARGER LES ASTUCES 🫵🫵
+</a>
+</h1>
+
+</div>
